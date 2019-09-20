@@ -1,1 +1,0 @@
-Texera_RUC
